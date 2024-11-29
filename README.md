@@ -1,1 +1,1 @@
-# synt2024.github.io
+# synt2025.github.io
